@@ -1,1 +1,0 @@
-Portfolyo sayfamı düzenliyorum
